@@ -1,0 +1,1 @@
+[[Analogía de la línea]]
